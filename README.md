@@ -1,2 +1,2 @@
 # biodata
-mungkin script yang aku buat berantakan maklum newbe :v
+mungkin script yang aku buat berantakan Karena saya juga masih belajar
